@@ -59,7 +59,7 @@ Modern and Responsive Frontend Website.
 
 ## 📫 Connect With Me
 
-📧 Email: saniashetty21@gmail.com
+📧 Email: saniyashetti17@gmail.com
 
 ---
 
